@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @carolinebastian
+- 👋 Hi, I’m Caroline Bastian (aka Caroline R. Bastian, @carolinebastian)
 - 🏢 I work at NYU Stern as a Research Scholar
 - 🏛️ I have an MS in Applied Statistics for Social Science Research from New York University, a Master of International Affairs from Columbia University, and a BA in Economics, International Studies and German from Pacific University.
 
